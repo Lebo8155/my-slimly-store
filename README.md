@@ -1,1 +1,0 @@
-my journey with FNBAPPACADEMY
